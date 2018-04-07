@@ -1,3 +1,3 @@
-Hito No kane De Yakiniku Ga Kuitai
+ï»¿Hito No kane De Yakiniku Ga Kuitai
 Yakiniku Igaimo Kuitai
-ƒeƒXƒg
+ãƒ†ã‚¹ãƒˆ
